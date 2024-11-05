@@ -1,10 +1,10 @@
 - 👋 Hi, I’m Jessie/e
-- 👀 I’m interested in media de publicity impact, esp.written scripts based on tech platform.
+- 👀 I’m interested in media de publicity impact, esp.writing scripts on tech platform.
 - 🌱 I’m currently learning how to compile Python esp. based on high performance computing platform
 - 💞️ I’m looking to collaborate to study on how Troy happens currently.
 - 📫 How to reach me : SECURITY et CONFIDENTIAL as if just Green colored that simple et graceful
 - 😄 Pronouns: Elle von Ils
-- ⚡ Fun fact: I am into Art as if seamlessly into Audrey Herburt's career et life that Roman Holiday
+- ⚡ Fun fact: I am into Art as if seamlessly into Audrey Herburt's career et life that Roman Holiday or flipped over to Shim Well that Simple et innocently graceful
 
 <!---
 cjie33311001/cjie33311001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
