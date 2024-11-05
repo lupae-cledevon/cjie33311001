@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Jessie/e
 - 👀 I’m interested in media de publicity impact, esp.writing scripts on tech platform.
-- 🌱 I’m currently learning how to compile Python esp. based on high performance computing platform
+- 🌱 I’m currently learning how to compile Python esp. on high performance computing platform
 - 💞️ I’m looking to collaborate to study on how Troy takes place currently.
 - 📫 How to reach me : SECURITY et CONFIDENTIAL
 - 😄 Pronouns: Elle von Ils
