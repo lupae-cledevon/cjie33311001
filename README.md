@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to compile Python esp. on high performance computing platform
 - 💞️ I’m looking to collaborate to study on how Troy takes place currently.
 - 📫 How to reach me : SECURITY et CONFIDENTIAL
-- 😄 Pronouns: Ils
+- 😄 Pronouns: Elle
 - ⚡ Fun fact: I am into Art as if seamlessly into Audrey Herburt's career et life that Roman Holiday et enjoy reading Wealth of A Nation
 
 <!---
