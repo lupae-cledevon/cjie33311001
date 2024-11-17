@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jessie/e (alias: cencen/Dawn)
-- 👀 I’m interested in media de publicity impact,esp. on modern media platform
+- 👀 I’m interested in media de publicity impact,esp. on modern tech platform
 - 🌱 I’m currently learning Python's innovation et development history
 - 💞️ I’m looking to collaborate to study on how Troy takes place currently
 - 📫 How to reach me : SECURITY et CONFIDENTIAL
